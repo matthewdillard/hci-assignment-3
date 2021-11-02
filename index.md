@@ -20,7 +20,6 @@ There are some other simple solutions you can do right now to help in limiting t
 
 [![dangers of internet](reddituser_minutes.png)
 
+## Key points
 
-
-
-
+The biggest thing you can do to improve your relationship with the internet and improve your digital wellbeing is to just pay more attention. Pay attention to what you use your phone for, when you use it, and where you use it. Pay attention to what you consume, what you read, and what you watch. Pay attention to what things browsing social media is replacing in your life, and if it is worth giving up that thing for time scrolling the feeds on your phone. Like I said before, the most valuable thing we own is our attention. With a limited time here on Earth, how and what we give our attention is our most precious commodity. Taking the time to evaluate and determine how to best utilize the many wonders of the internet allows while still maintaining a healhty relationship with it will be one of the most valuable skills for generations to come. 
