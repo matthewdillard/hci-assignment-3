@@ -1,4 +1,4 @@
-# hci-assignment-3
+# Digital Wellness
 ## A major problem at a minor scale
 There are a vast number of extremely dire and alarming issues that the world (the younger generations in particular) are facing, and will continue to have to face in our lifetimes. A sense of hopelessness surrounds many, if not most, because as individuals there is very little we can do to deter the rapidly increasing affects of climate change, stop illegal behavior of the global elite, provide access to health care, food, and education for the underprivilidged, and provide a secure and accepting world for the next generation to grow up in regardless of their personal identity. 
 
@@ -7,4 +7,6 @@ There is a ideology that I believe in, however, that says before you can fix the
 ## A dangerous vice
 
 [![dangers of internet](danger.jpg)](https://www.youtube.com/watch?v=uquRzrcwA18)
+
+Building on my point from the introduction of focusing on yourself first, I want to touch on how so many of us are hooked on social media in particular, as that is something that we can work on immediatly, and will compound on itself to better our mental health and overall wellbeing. 
 
