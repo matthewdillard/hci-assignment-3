@@ -8,5 +8,7 @@ There is a ideology that I believe in, however, that says before you can fix the
 
 [![dangers of internet](danger.jpg)](https://www.youtube.com/watch?v=uquRzrcwA18)
 
-Building on my point from the introduction of focusing on yourself first, I want to touch on how so many of us are hooked on social media in particular, as that is something that we can work on immediatly, and will compound on itself to better our mental health and overall wellbeing. 
+Building on my point from the introduction, the truth that so many of us are hooked on social media in particular is something that exhibits as an issue that is within us, and therefore something that we can and should focus on as a priority over other issues. Something that social media, and social media companies depend on is your willingness to make every problem your problem. That is what keeps your attention, and what makes them money. Our attention is the most valueable thing we have. Our inability to recognize or control how often we toss away hours upon hours mindlessly scrolling through walls of pictures and posts and links that do little to improve our lives is an epidemic. 
+
+
 
