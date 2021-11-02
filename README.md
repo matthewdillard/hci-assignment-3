@@ -6,5 +6,5 @@ There is a ideology that I believe in, however, that says something to the affec
 
 ## A dangerous vice
 
-[![dangers of internet](dangersofinternet.jpg)](https://www.youtube.com/watch?v=uquRzrcwA18)
+[![dangers of internet](danger.jpg)](https://www.youtube.com/watch?v=uquRzrcwA18)
 
